@@ -1,1 +1,0 @@
-# yoshiizumi.github.io
